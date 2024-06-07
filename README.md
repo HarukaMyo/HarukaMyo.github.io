@@ -1,1 +1,0 @@
-# HarukaMyo.github.io
